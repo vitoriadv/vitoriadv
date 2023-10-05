@@ -6,4 +6,4 @@ Meu nome é Vitória Degues Vieira.
 
 ### Vocẽ pode entrar em contato comigo 📫 
 
-vitória.degues.vieira@escola.pr.gov.br
+vitoria.degues.vieira@escola.pr.gov.br
